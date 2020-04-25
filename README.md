@@ -6,7 +6,7 @@
 
 Just for fun.
 
-
+![](https://cdn.jsdelivr.net/gh/singularTnT/Image-Host@master/Blogger/assets/random1.png)
 
 #### 引言
 
